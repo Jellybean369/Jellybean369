@@ -1,3 +1,4 @@
+![bar](top.gif)
 ## Welcome to my GitHub profile!
 I'm Jellybean369, a python coder who isn't really active alot, I mean, I am, but just not within my own repo's
 
@@ -24,3 +25,4 @@ For things I like, they are
 ## Literally me when I forget something:
 ![mikachu](nope.png)
 Image from: Kind & Polite! Tenshitchi's Official Training
+![bar](boottom.gif)
