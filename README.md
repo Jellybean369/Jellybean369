@@ -22,6 +22,10 @@ For things I like, they are
 - PenguinMod https://penguinmod.com/profile/?user=jellybean369
 - Spotify https://open.spotify.com/user/31m3vmr5ffk6bybyhp3er3rxqbxy
 
+## something
+[![](https://gamebanana.com/mods/embeddables/677470?type=large)](https://gamebanana.com/mods/677470)
+
+
 ## Literally me when I forget something:
 ![mikachu](nope.png)
 Image from: Kind & Polite! Tenshitchi's Official Training
