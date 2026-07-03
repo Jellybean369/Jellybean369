@@ -23,3 +23,4 @@ For things I like, they are
 
 ## Literally me when I forget something:
 ![mikachu](nope.png)
+Image from: Kind & Polite! Tenshitchi's Official Training
