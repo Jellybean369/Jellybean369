@@ -22,4 +22,4 @@ For things I like, they are
 - Spotify https://open.spotify.com/user/31m3vmr5ffk6bybyhp3er3rxqbxy
 
 ## Literally me when I forget something:
-https://raw.githubusercontent.com/Jellybean369/Jellybean369/refs/heads/main/nope.png
+![mikachu](nope.png)
