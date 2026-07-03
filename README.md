@@ -9,7 +9,8 @@ For things I like, they are
 - Tamagotchi
 - PetitCure
 - Hatsune Miku 
-  and thats all
+
+  - and thats all
 
 ## My soshels (but not really)
 - Pixilart https://www.pixilart.com/yumemitchi-love/gallery <- I'm known as Yumemitchi Love here
