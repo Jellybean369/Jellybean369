@@ -23,7 +23,7 @@ For things I like, they are
 - Spotify https://open.spotify.com/user/31m3vmr5ffk6bybyhp3er3rxqbxy
 
 ## something
-[![](https://gamebanana.com/mods/embeddables/677470?type=large)](https://gamebanana.com/mods/677470)
+[![](https://gamebanana.com/mods/embeddables/677470?type=large)](https://gamebanana.com/mods/677470) [![](https://gamebanana.com/mods/embeddables/693760?type=large)](https://gamebanana.com/mods/693760)
 
 
 ## Literally me when I forget something:
