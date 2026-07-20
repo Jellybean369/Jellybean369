@@ -22,8 +22,9 @@ For things I like, they are
 - PenguinMod https://penguinmod.com/profile/?user=jellybean369
 - Spotify https://open.spotify.com/user/31m3vmr5ffk6bybyhp3er3rxqbxy
 
-## something
+## GameBanana Mods
 [![](https://gamebanana.com/mods/embeddables/677470?type=large)](https://gamebanana.com/mods/677470) [![](https://gamebanana.com/mods/embeddables/693760?type=large)](https://gamebanana.com/mods/693760)
+[![](https://gamebanana.com/projects/embeddables/37724?type=large)](https://gamebanana.com/projects/37724)
 
 
 ## Literally me when I forget something:
