@@ -24,7 +24,7 @@ For things I like, they are
 
 ## GameBanana Mods
 [![](https://gamebanana.com/mods/embeddables/677470?type=large)](https://gamebanana.com/mods/677470) [![](https://gamebanana.com/mods/embeddables/693760?type=large)](https://gamebanana.com/mods/693760)
-[![](https://gamebanana.com/projects/embeddables/37724?type=large)](https://gamebanana.com/projects/37724)
+[![](https://gamebanana.com/projects/embeddables/37724?type=large)](https://gamebanana.com/projects/37724) [![](https://gamebanana.com/mods/embeddables/711430?type=large)](https://gamebanana.com/mods/711430)
 
 
 ## Literally me when I forget something:
