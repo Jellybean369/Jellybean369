@@ -14,7 +14,7 @@ For things I like, they are
   - and thats all
 
 ## My soshels (but not really)
-- Pixilart https://www.pixilart.com/yumemitchi-love/gallery <- I'm known as Yumemitchi Love here
+- Pixilart https://www.pixilart.com/reimu-who <- I'm known as Reimu Who? here
 - GameBanana https://gamebanana.com/members/5489171
 - YouTube https://www.youtube.com/channel/UCv848vIXi4RjMGdlOov0rrQ/
 - SMW Central https://www.smwcentral.net/?p=profile&id=74890
