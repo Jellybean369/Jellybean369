@@ -1,6 +1,6 @@
 ![bar](top.gif)
 ## Welcome to my GitHub profile!
-I'm Jellybean369, a python coder who isn't really active alot, I mean, I am, but just not within my own repo's
+I'm Jellybean369, a python coder who isn't really active alot, I mean, I am, but just not within my own repo's, I do have a BBC Micro:Bit that I do mess around with (no Bad Apple isn't possible on it.)
 
 ## Bout me
 For things I like, they are
